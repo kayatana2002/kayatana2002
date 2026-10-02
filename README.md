@@ -88,5 +88,3 @@ I am passionate about bridging biology, medicine, and computation. My long term 
 ## Connect With Me
 **Email:** Kayatana2002@gmail.com  
 **LinkedIn:** linkedin.com/in/kayatana-estes
-**Email:** Kayatana2002@gmail.com  
-**LinkedIn:** linkedin.com/in/kayatana-estes
